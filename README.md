@@ -1,14 +1,7 @@
 # hello-world
 wawa
 
-uuu
 
 
 
-
-
-
-
-
-
-uoeauaoeu
+oh my god!
