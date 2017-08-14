@@ -6,9 +6,4 @@ uuu
 
 
 
-
-
-
-
-
-uoeauaoeu
+oh my god!
